@@ -7,7 +7,7 @@ A living wellness journal and care log for managing post-viral ME/CFS, featuring
 
 Each log includes updates on physical symptoms, energy levels, dietary adjustments, wellness routines, and observations to assist with pacing and communication with healthcare providers.
 
-- [2025-07-14 — Visit to Dr. Otto](2025-07-14- Dr.Otto-Log.md)
+- [2025-07-14 — Visit to Dr. Otto](2025-07-14-Dr.Otto-Log.md)
 
 ## 🌿 Nutrition & Recipes
 

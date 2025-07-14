@@ -24,9 +24,10 @@ Despite these challenges, I feel more emotionally peaceful overall.
 
 Over the past month, I’ve been taking half of my normal medication dosage.
 
-This was a personal adjustment and may be worth reviewing together.
+Nighttime: I’ve switched back to Benadryl instead of hydroxyzine.
 
-Also, I'm back on Benadryl at night rather than the hydroxyzine and I'm mostly using the lorazepam rather than the clonazepam.
+For anxiety and sleep support, I’m primarily using lorazepam now rather than clonazepam.
+
 
 
 ---

@@ -18,6 +18,16 @@ I’ve experienced two recent falls.
 Despite these challenges, I feel more emotionally peaceful overall.
 
 
+---
+
+💊 Medication
+
+Over the past month, I’ve been taking half of my normal medication dosage.
+
+This was a personal adjustment and may be worth reviewing together.
+
+Also, I'm back on Benadryl at night. 
+
 
 ---
 

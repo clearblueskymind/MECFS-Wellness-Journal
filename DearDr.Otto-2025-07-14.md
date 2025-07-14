@@ -101,5 +101,23 @@ Continuing caution with physical exertion due to heightened PEM risk
 
 Although my physical energy remains low, I’ve been able to cultivate greater emotional and spiritual peace. With support from tools like the ME/CFS Wellness Companion I’ve been building, I’m continuing to refine my daily rhythms and health practices.
 
-With deep gratitude for your presence and care,
-Richard
+---
+
+Read to Dr. Otto
+
+Dear Dr. Otto,
+
+Over the past month, I’ve been experiencing more pronounced fatigue—not so much sleepiness, but a deep lack of physical energy. I’ve also felt more light-headed, and have had two mild falls. There’s been occasional mild chest discomfort, but nothing alarming. Overall, I’ve been less active and mostly limited to essential household activities—like preparing meals, light cleaning, and taking showers. Despite all this, I’d say my emotional state has been more peaceful.
+
+One bright spot has been my therapy pet, who continues to be a great source of comfort and motivation.
+
+In terms of movement, I’ve gently started using a five-pound dumbbell for about 10 minutes a day, always being careful not to trigger PEM.
+
+Nutritionally, I’m back on a keto-style diet—low-fat, low-protein—aiming for 75 grams of fat, 100 grams of protein, and around 1800 calories a day. I’ve been testing positive for ketosis for the last three weeks, with ketones around 0.7. I’ve also begun intermittent fasting, generally from 6 p.m. until about 10 or 11 the next morning. I’m doing my best to stay hydrated, with a target of three quarts of water per day.
+
+For medications, I’ve been taking half of my usual dosage overall. I’ve switched back to Benadryl at night instead of hydroxyzine, and I’m mostly using lorazepam rather than clonazepam.
+
+Sleep hygiene has been a focus too. I try to begin winding down around 4 or 5 in the afternoon—dimming lights, calming music, and preparing mentally and physically for rest. And each morning, I’ve been practicing contemplative prayer for about 20 minutes to start the day.
+
+As always, thank you for your support and care.
+---

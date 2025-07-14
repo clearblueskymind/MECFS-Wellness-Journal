@@ -119,5 +119,7 @@ For medications, I’ve been taking half of my usual dosage overall. I’ve swit
 
 Sleep hygiene has been a focus too. I try to begin winding down around 4 or 5 in the afternoon—dimming lights, calming music, and preparing mentally and physically for rest. And each morning, I’ve been practicing contemplative prayer for about 20 minutes to start the day.
 
+For today’s session, I’m hoping to check in and give you this update, hear any thoughts or suggestions you might have, and if possible, receive some gentle craniosacral therapy focused on my neck, head, and shoulders.
+
 As always, thank you for your support and care.
 ---

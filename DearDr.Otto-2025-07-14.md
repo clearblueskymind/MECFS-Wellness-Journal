@@ -111,7 +111,7 @@ Over the past month, I’ve been experiencing more pronounced fatigue—not so m
 
 One bright spot has been my therapy pet, who continues to be a great source of comfort and motivation.
 
-In terms of movement, I’ve gently started using a five-pound dumbbell for about 10 minutes a day, always being careful not to trigger PEM.
+In terms of movement, I’ve gently started using a five-pound dumbbell for about 10 minutes a day and I’m also doing 10 seated squats using a chair. As always, I’m being very careful not to aggravate the constant daily state of PEM.
 
 Nutritionally, I’m back on a keto-style diet—low-fat, low-protein—aiming for 75 grams of fat, 100 grams of protein, and around 1800 calories a day. I’ve been testing positive for ketosis for the last three weeks, with ketones around 0.7. I’ve also begun intermittent fasting, generally from 6 p.m. until about 10 or 11 the next morning. I’m doing my best to stay hydrated, with a target of three quarts of water per day.
 

@@ -26,7 +26,7 @@ Over the past month, I’ve been taking half of my normal medication dosage.
 
 This was a personal adjustment and may be worth reviewing together.
 
-Also, I'm back on Benadryl at night. 
+Also, I'm back on Benadryl at night rather than the hydroxyzine and I'm mostly using the lorazepam rather than the clonazepam.
 
 
 ---

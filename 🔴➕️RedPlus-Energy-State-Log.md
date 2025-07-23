@@ -1,7 +1,7 @@
 ## 🔴➕ Red Plus: Energy State Log – Understanding and Signs
 
 ### Summary
-Following the home retreat (July 19–21), I entered a **🔴➕ Red Plus** state beginning Monday, July 22. This mild crash has lasted at least two days. As of early Wednesday (2:30 AM), I'm beginning to think more clearly and will aim to progress toward a 🟡− Yellow Minus recovery state today.
+Following the home retreat (July 18–20 Red Tara w/ Orgyen Chowang), I entered a **🔴➕ Red Plus** state beginning Monday, July 21. This mild crash has lasted at least two days. As of early Wednesday (2:30 AM), I'm beginning to think more clearly and will aim to progress toward a 🟡− Yellow Minus recovery state today.
 
 ---
 
@@ -19,7 +19,8 @@ Following the home retreat (July 19–21), I entered a **🔴➕ Red Plus** stat
 
 - Early waking (e.g. 2–4 AM), despite sleep aids
 - Prolonged fatigue, lying down during the day
-- High-fat comfort foods used for stabilization
+- Craving for cookies bearly averted.
+- Binging: protien & High-fat comfort foods used for stabilization
 - Increased noise sensitivity
 - Digestive irregularities (mitigated with magnesium)
 
@@ -27,7 +28,8 @@ Following the home retreat (July 19–21), I entered a **🔴➕ Red Plus** stat
 
 ### Functional Capacity
 
-- Able to log, reflect, prepare food — not fully disabled
+- Minimal ability to log, reflect, prepare food — not fully disabled
+- Brain fog & cognitive ability decreased - Requested extremely short chatGPT resonses -
 - Emotionally and physically **fragile**, vulnerable to overstimulation
 - In retreat mode: **minimal activity**, quiet pacing, soft textures
 

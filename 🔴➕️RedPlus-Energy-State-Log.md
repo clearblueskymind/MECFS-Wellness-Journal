@@ -5,6 +5,15 @@ Following the home retreat (July 18–20 Red Tara w/ Orgyen Chowang), I entered 
 
 ---
 
+✅ Today is Wednesday, July 23
+
+✅ The Red Tara retreat ran from Thursday, July 18 through Sunday, July 20
+
+🔴➕ Red Plus crash began Monday, July 21
+
+🟡− Today (Wednesday) is your intended recovery and transition day
+---
+
 ### Mental & Emotional Signs
 
 - Cravings (e.g. cookies), even while in ketosis — indicating dopamine imbalance

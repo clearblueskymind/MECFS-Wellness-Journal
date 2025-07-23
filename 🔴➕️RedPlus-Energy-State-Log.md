@@ -50,3 +50,60 @@ Following the home retreat (July 18–20 Red Tara w/ Orgyen Chowang), I entered 
 - Retreat overstimulation was the trigger (esp. evening sessions)
 - Next time: consider **skipping evening sessions** to preserve sleep
 - Remember: it's hard to remember Red Plus *from yellow*, so log it while you're in it
+---
+
+🧠 Mental & Emotional Signs
+
+Cravings (cookies, emotional eating urges), even while in ketosis — signaling dopamine withdrawal and imbalance
+
+Frustration//agitation/restlessness/dark mood/discouragement over losing your rhythm after something positive (retreat)
+
+Emotional sensitivity — craving compassion, support, feeling the "crash aftermath" from overstimulation
+
+Desire for simplicity — cognitive fatigue evident in wanting fewer decisions, less prep, and less demand
+
+
+
+---
+
+🪫 Physical Signs
+
+Sleep disruption — waking around 3–4 AM, despite sedatives
+
+Profound fatigue — needing to lie down mid-afternoon, prolonged resting
+
+Nutritional rebound — heavier reliance on calorie-dense foods like brisket, peanuts, coconut oil
+
+Craving comforting warmth — broth, fat, soft textures (classic PEM coping instinct)
+
+Digestive irregularity — improved with magnesium but still an issue, especially with PEM
+
+Cognitive decline - requested extremely short responses from chatGPT
+
+---
+
+⛔️ Functional Capacity
+
+Still able to prep food, track tasks, and reflect — not full red
+
+However, limited tolerance for noise, activity, decision-making, and engagement even with chatGPT — clearly beyond yellow
+
+Emotional energy is fragile — susceptible to dips in mood from small setbacks
+
+
+
+---
+
+🔁 Recovery Pattern from Red Plus - MINIMIZE ACTIVITY / PRIORITIZE REST
+
+Fat-rich comfort food (e.g. brisket, avocado, broth)
+
+Simple hydration (chia, Dr. Price)
+
+Minimal structure with optional pacing
+
+Logging as gentle scaffolding — not too rigid
+
+Emotionally supportive tone — validation and reminders of progress help significantly
+
+---

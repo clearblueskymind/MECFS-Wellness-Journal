@@ -119,3 +119,19 @@ Functional capacity gains
 Best practices for stabilizing and not overshooting
 
 ---
+
+🔄 Recovery Priorities for Today
+
+Gentle structure only — soft pacing blocks (rest + one small task)
+
+Fat-forward nourishment — brisket, avocado, broth
+
+Simplified hydration — chia/flax water, electrolytes
+
+Logging light — no decision fatigue, only what feels natural
+
+Emotional regulation — mood check-ins, gentle affirmation
+
+No pushing through — even minor energy gains must be banked, not spent
+
+---

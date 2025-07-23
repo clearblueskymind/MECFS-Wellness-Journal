@@ -107,3 +107,15 @@ Logging as gentle scaffolding — not too rigid
 Emotionally supportive tone — validation and reminders of progress help significantly
 
 ---
+
+🟡− Yellow Minus – Recovery Phase, tracking:
+
+Early signs of improvement
+
+Shifts in emotional tone
+
+Functional capacity gains
+
+Best practices for stabilizing and not overshooting
+
+---
